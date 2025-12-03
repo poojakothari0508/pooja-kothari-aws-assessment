@@ -1,1 +1,0 @@
-# pooja-kothari-aws-assessment
